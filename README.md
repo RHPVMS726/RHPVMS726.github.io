@@ -1,2 +1,2 @@
 # Welcome to the Webpage.
-## We Here Hope you Have a Phenomenal 360 Viewing Experience
+## These 360 Images show how the EAST Classroom is run diffrent than any other other classroom.
